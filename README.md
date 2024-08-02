@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @malczii
+- 👀 I’m interested in NBA, NFL, UFC and programming.
+- 🌱 I’m currently learning Python, because I'm begginer.
+- 💞️ I’m looking to collaborate on - will see.
+- 📫 How to reach me - by @
+- 😄 Pronouns: bro..ofc male
+- ⚡ Fun fact: is going to create during change work
