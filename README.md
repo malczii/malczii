@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @malczii
-- 🌱 I’m currently learning HTML, CSS and Python, because I'm begginer.
+- 🌱 I’m currently learning HTML, CSS and Python.
 - 📫 How to reach me - via @
 - 👀 I’m interested in NBA, NFL, UFC and ofc programming.
